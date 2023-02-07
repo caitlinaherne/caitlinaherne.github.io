@@ -1,5 +1,5 @@
-<p align="center"><span style="color:black;font-weight:700;font-size:20px">Caitlin Aherne</span></p>
-<p align="center">Edmonton, AB ∙ 780-908-4316 ∙ caherne9@gmail.com</p>
+# <p align="center">Caitlin Aherne</p>
+## <p align="center">Edmonton, AB ∙ 780-908-4316 ∙ caherne9@gmail.com</p>
 <hr>
 
 ### HIGHLIGHTS OF SKILLS
