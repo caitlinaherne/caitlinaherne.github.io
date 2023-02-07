@@ -78,22 +78,22 @@ SCONA Senior Center, Edmonton AB
 **Gagnante de la finale locale et régionale de la dictée P.G.L.,** Fondation Paul Gérin-Lajoie
 
 ### PROFESSIONAL DEVELOPMENT
-**Launch Your Online Business MOOC,** State University of New York
-**Working with Children and Teens Using a Trauma Responsive Lens Training,** Southern Arizona Trauma Informed Network
-**Virtual Naxolone Training,** The FentaNIL Project
-**Trauma Awareness for ESL Instructors Workshop,** NorQuest College
-**Teaching Pragmatics Workshop,** NorQuest College
-**Indigenous Canada MOOC,** University of Alberta
-**3D Modeling Basics Workshop,** University of Alberta
-**Supporting Survivors of Sexual Violence Workshop,** University of Alberta Sexual Assault Centre
-**Community Helpers Program,** University of Alberta
-**Storyboarding Fundamentals Workshop,** Animation Mentor
-**LivingWorks Start – Online Suicide Prevention Training,** LivingWorks
-**2SLGBTQ+ Inclusion in the ESL Classroom Workshop,** University of Alberta
-**First Nations, Métis and Inuit Elementary Music Teacher Professional Learning Opportunity,** University of Alberta
-**Secondary and Elementary Music Professional Learning Event,** University of Alberta
-**Formation Via Musica – 1e à 6e,** Consortium Provincial Francophone
-**Speech-Language Pathology Interprofessional Educational Experience,** University of Alberta
+* **Launch Your Online Business MOOC,** State University of New York
+* **Working with Children and Teens Using a Trauma Responsive Lens Training,** Southern Arizona Trauma Informed Network
+* **Virtual Naxolone Training,** The FentaNIL Project
+* **Trauma Awareness for ESL Instructors Workshop,** NorQuest College
+* **Teaching Pragmatics Workshop,** NorQuest College
+* **Indigenous Canada MOOC,** University of Alberta
+* **3D Modeling Basics Workshop,** University of Alberta
+* **Supporting Survivors of Sexual Violence Workshop,** University of Alberta Sexual Assault Centre
+* **Community Helpers Program,** University of Alberta
+* **Storyboarding Fundamentals Workshop,** Animation Mentor
+* **LivingWorks Start – Online Suicide Prevention Training,** LivingWorks
+* **2SLGBTQ+ Inclusion in the ESL Classroom Workshop,** University of Alberta
+* **First Nations, Métis and Inuit Elementary Music Teacher Professional Learning Opportunity,** University of Alberta
+* **Secondary and Elementary Music Professional Learning Event,** University of Alberta
+* **Formation Via Musica – 1e à 6e,** Consortium Provincial Francophone
+* **Speech-Language Pathology Interprofessional Educational Experience,** University of Alberta
 
 ### SCHOLARSHIPS
 **Building the Future for Students Scholarship,** University of Alberta
