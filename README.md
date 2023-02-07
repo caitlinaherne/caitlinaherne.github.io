@@ -1,6 +1,5 @@
 # Caitlin Aherne
 ## Edmonton, AB ∙ 780-908-4316 ∙ caherne9@gmail.com
-<hr>
 
 ### HIGHLIGHTS OF SKILLS
 * Bachelor of Arts graduate with 6 years of teaching and mentoring experience in children’s education
