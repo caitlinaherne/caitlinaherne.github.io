@@ -67,15 +67,15 @@ SCONA Senior Center, Edmonton AB
 * Participated in activities with older adults of varying physical functioning and socioeconomic status
 
 ### SELECTED ACHIEVEMENTS
-**Certificate in International Learning,** University of Alberta
-**Green and Gold Student Leadership and Professional Development Grant,** University of Alberta
-**Level 10 Voice Certificate, First Class Honours,** Royal Conservatory of Music
-**Certificate in Catholic Education,** St. Joseph’s College
-**Level 7 Voice Gold Medal,** Royal Conservatory of Music
-**Cosplay Craftsmanship: Best Novice Award,** Animethon
-**Level 5 Voice Gold Medal,** Royal Conservatory of Music
-**AMV (Animated Music Video) Contest: Best Made in Alberta Award,** Animethon
-**Gagnante de la finale locale et régionale de la dictée P.G.L.,** Fondation Paul Gérin-Lajoie
+* **Certificate in International Learning,** University of Alberta
+* **Green and Gold Student Leadership and Professional Development Grant,** University of Alberta
+* **Level 10 Voice Certificate, First Class Honours,** Royal Conservatory of Music
+* **Certificate in Catholic Education,** St. Joseph’s College
+* **Level 7 Voice Gold Medal,** Royal Conservatory of Music
+* **Cosplay Craftsmanship: Best Novice Award,** Animethon
+* **Level 5 Voice Gold Medal,** Royal Conservatory of Music
+* **AMV (Animated Music Video) Contest: Best Made in Alberta Award,** Animethon
+* **Gagnante de la finale locale et régionale de la dictée P.G.L.,** Fondation Paul Gérin-Lajoie
 
 ### PROFESSIONAL DEVELOPMENT
 * **Launch Your Online Business MOOC,** State University of New York
@@ -96,14 +96,14 @@ SCONA Senior Center, Edmonton AB
 * **Speech-Language Pathology Interprofessional Educational Experience,** University of Alberta
 
 ### SCHOLARSHIPS
-**Building the Future for Students Scholarship,** University of Alberta
-**Edmonton Film Society Scholarship,** University of Alberta
-**Vanessa Hughes Memorial Award,** University of Alberta
-**Andra Sheffer Scholarship,** Youth Media Alliance – Alliance Médias Jeunesse
-**University of Alberta Academic Excellence Scholarship - Faculty of Education,** University of Alberta
-**Rosa H Wolters Entrance Scholarship,** University of Alberta
-**Alexander Rutherford Scholarship,** Alberta Student Aid
+* **Building the Future for Students Scholarship,** University of Alberta
+* **Edmonton Film Society Scholarship,** University of Alberta
+* **Vanessa Hughes Memorial Award,** University of Alberta
+* **Andra Sheffer Scholarship,** Youth Media Alliance – Alliance Médias Jeunesse
+* **University of Alberta Academic Excellence Scholarship - Faculty of Education,** University of Alberta
+* **Rosa H Wolters Entrance Scholarship,** University of Alberta
+* **Alexander Rutherford Scholarship,** Alberta Student Aid
 
-###SKILLS
+### SKILLS
 * **Language proficiency:** English (native), French (fluent), Spanish (beginner)
 * **Computer software:** Sony Vegas Pro, Adobe Photoshop, Logic Pro X, Microsoft Office, Google Workspace
