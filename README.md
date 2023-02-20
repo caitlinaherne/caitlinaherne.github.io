@@ -2,13 +2,13 @@
 ## Edmonton, AB ∙ 780-908-4316 ∙ caherne9@gmail.com
 
 ### HIGHLIGHTS OF SKILLS
-* Bachelor of Arts graduate with 6 years of teaching and mentoring experience in children’s education
+* 6 years of teaching and mentoring experience in children’s education
 * Developed strong intercultural communication skills by completing training, courses from different disciplines, and intercultural experiences for Certificate in International Learning requirements
 * Awarded the Youth Media Alliance’s Andra Sheffer Scholarship for commitment to creating age-appropriate educational content about multiculturalism and inclusion targeting children across Canada
 * Strengthened bilingual language skills by mentoring and communicating in English and French
 
 ### EDUCATION
-**Bachelor of Arts, Film Studies** with Distinction | GPA: 3.9  
+**Bachelor of Arts, Film Studies** with Distinction 
 University of Alberta, Edmonton AB  
 _Sept. 2016 - Nov. 2022_
 * **Minors:** Christian Theology and Music
@@ -89,12 +89,14 @@ _Jan. 2019 - Apr. 2019_
 
 ### PROFESSIONAL DEVELOPMENT
 * **Launch Your Online Business MOOC,** State University of New York, _Jan. 2023 - Feb. 2023_
+* **Inclusive Education Training for Educational Staff,** JFA Purple Orange, _Feb. 2023_
 * **Working with Children and Teens Using a Trauma Responsive Lens Training,** Southern Arizona Trauma Informed Network, _Feb. 2023_
 * **Virtual Naxolone Training,** The FentaNIL Project, _Jan. 2023_
 * **Trauma Awareness for ESL Instructors Workshop,** NorQuest College, _Jan. 2023_
 * **Teaching Pragmatics Workshop,** NorQuest College, _Jan. 2023_
 * **Indigenous Canada MOOC,** University of Alberta, _Sept. 2022 - Dec. 2022_
 * **3D Modeling Basics Workshop,** University of Alberta, _Nov. 2022_
+* **Search Engine Optimization and Linked Open Data,** University of Alberta, _Nov. 2022_
 * **Supporting Survivors of Sexual Violence Workshop,** University of Alberta Sexual Assault Centre, _Sept. 2022_
 * **Community Helpers Program,** University of Alberta, _Oct. 2021_
 * **Storyboarding Fundamentals Workshop,** Animation Mentor, _May 2021 - Jun. 2021_
