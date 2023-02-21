@@ -89,6 +89,7 @@ _Jan. 2019 - Apr. 2019_
 
 ### PROFESSIONAL DEVELOPMENT
 * **Launch Your Online Business MOOC,** State University of New York, _Jan. 2023 - Feb. 2023_
+* **Building a Culture of Consent on Campus,** University of Alberta Sexual Assault Centre, _Feb. 2023_
 * **Inclusive Education Training for Educational Staff,** JFA Purple Orange, _Feb. 2023_
 * **Identifying, Helping, & Referring Students in Distress,** University of Alberta, _Feb. 2023_
 * **Working with Children and Teens Using a Trauma Responsive Lens Training,** Southern Arizona Trauma Informed Network, _Feb. 2023_
