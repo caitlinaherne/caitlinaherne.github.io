@@ -95,8 +95,8 @@ _Jan. 2014 - Jun. 2014_
 ### PROFESSIONAL DEVELOPMENT
 * **Level 1 Early Childhood Educator Certification,** Government of Alberta,	_July 2023 – Present_
 * **Special Education Course,** Educator and Leadership Institute, Wilfred Laurier University, _July 2023 – Present_
-* **Caregiving Essentials Course,** McMaster University,	_July 2023 – Present_
 * **Launch Your Online Business MOOC,** State University of New York, _Jan. 2023 - Present_
+* **Caregiving Essentials Course,** McMaster University,	_July 2023_
 * **Guide to Feminine Posing with Irene Rudnyk Webinar,** McBain Camera, _May 2023_
 * **The Predicting Brain and Why it Matters Training,** Southern Arizona Trauma Informed Network, _May 2023_
 * **Cricut 101 Certification,** Edmonton Public Library, _May 2023_
