@@ -94,9 +94,13 @@ _Jan. 2014 - Jun. 2014_
 
 ### PROFESSIONAL DEVELOPMENT
 * **Level 1 Early Childhood Educator Certification,** Government of Alberta,	_July 2023 – Present_
-* **Special Education Course,** Educator and Leadership Institute, Wilfred Laurier University, _July 2023 – Present_
-* **Launch Your Online Business MOOC,** State University of New York, _Jan. 2023 - Present_
+* **The Serious Fun of Writing for Young Readers,** Edmonton Public Library, _Sept. 2023_
+* **Understanding Disability in Alberta Workshop,** Gateway Association, _Sept. 2023_
+* **Jumpstart Program: Expectations vs. Reality,** NorQuest International, _Aug. 2023_
+* **A Trauma-Informed Approach to Motivational Interviewing Training,** Southern Arizona Trauma Informed Network, _Aug. 2023_
+* **Computer Skills: Introduction to Microsoft Excel,** Edmonton Public Library, _Aug. 2023_
 * **Caregiving Essentials Course,** McMaster University,	_July 2023_
+* * **Special Education Course,** Educator and Leadership Institute, Wilfred Laurier University, _July 2023 – Present_
 * **Guide to Feminine Posing with Irene Rudnyk Webinar,** McBain Camera, _May 2023_
 * **The Predicting Brain and Why it Matters Training,** Southern Arizona Trauma Informed Network, _May 2023_
 * **Cricut 101 Certification,** Edmonton Public Library, _May 2023_
@@ -108,6 +112,7 @@ _Jan. 2014 - Jun. 2014_
 * **Raising the Bar: Inclusive Education Training for Educational Staff Workshop,** JFA Purple Orange, _Feb. 2023_
 * **Identifying, Helping, & Referring Students in Distress Workshop,** University of Alberta, _Feb. 2023_
 * **Working with Children and Teens Using a Trauma Responsive Lens Training,** Southern Arizona Trauma Informed Network, _Feb. 2023_
+* **Launch Your Online Business MOOC,** State University of New York, _Jan. 2023 - Present_
 * **Virtual Naxolone Training,** The FentaNIL Project, _Jan. 2023_
 * **Trauma Awareness for ESL Instructors Workshop,** NorQuest College, _Jan. 2023_
 * **Teaching Pragmatics (Soft Skills) Workshop,** NorQuest College, _Jan. 2023_
