@@ -152,7 +152,8 @@ _Jan. 2014 - Jun. 2014_
 * **Computer software:** Sony Vegas Pro, Adobe Photoshop, Logic Pro X, Microsoft Office, Google Workspace
 
 ### EXTRACURRICULAR ACTIVITIES
-* **Alberta Botanical Society,** _July 2023 - Present_
+* **The Child Advocacy Society of the University of Alberta,** University of Alberta, _Sept. 2023 - Present_
+* **Table Top Club,** University of Alberta, _Jan. 2023 - Present_
 * **History, Classics, and Religion Undergraduate Society,** University of Alberta,	_Sept. 2022 – Present_
 *	**Fundraising for Animals Club,** University of Alberta, _Sept. 2019 – Present_
 *	**Badminton Club,** University of Alberta, _Sept. 2019 – Dec. 2019_
