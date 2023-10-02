@@ -1,5 +1,5 @@
 # Caitlin Aherne
-## Edmonton, AB ∙ 780-908-4316 ∙ caherne9@gmail.com
+## Edmonton, AB ∙ caherne9@gmail.com ∙ www.linkedin.com/in/caitlin-aherne-53660a284
 
 ### HIGHLIGHTS OF SKILLS
 * 6 years of experience educating and mentoring children in a variety of multicultural learning environments
